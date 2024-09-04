@@ -1,1 +1,0 @@
-# ve1l3d_str1ng.md
